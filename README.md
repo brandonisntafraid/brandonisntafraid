@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning philosophy along with college english and film produciton
 - 💞️ I’m looking to collaborate on Mary Jane, and any other film projects
 - 📫 How to reach me:
-- brandon@att.net
+- buddy.brandon@outlook.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm bi, bipolar, and OCD so cut me some slack if you can :]
 
